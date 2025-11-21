@@ -1,1 +1,1 @@
-Because of the character limit on PlayerAuctions, I can only leave a short review. The attached proof.png shows clear evidence that this seller (MarshalZone) retrieved the account and refused to help.
+Because of the character limit on PlayerAuctions, I can only leave a short review there. The attached proof.png shows clear evidence that this seller (MarshalZone) retrieved the account and refused to resolve the issue.
